@@ -1,4 +1,4 @@
-# れるりり – 脳漿炸裂ガール
+# rerulili – 脳漿炸裂ガール - Noushou Sakuretsu Girl
 
 > **歌詞登録ステータス：同期歌詞あり**
 
